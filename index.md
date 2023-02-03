@@ -1,1 +1,1 @@
-## future is amazing
+future is amazing
